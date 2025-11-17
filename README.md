@@ -40,7 +40,8 @@ NOW GO READ SOMETHING ELSE LIKE BILL GATE'S CV!!!
 <br>
 <br>
 ###### wait! before you go, can you please star my projects and follow me :)
-##### actually, ####JUST LIKE AND SUBSCIRBE!!!  👍&❤️
+##### actually, 
+#### JUST LIKE AND SUBSCIRBE!!!  👍&❤️
 
 
 
