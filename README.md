@@ -52,7 +52,33 @@ NOW GO READ SOMETHING ELSE LIKE BILL GATE'S CV!!!
 ###### wait! before you go, can you please star my projects and follow me :)
 ##### actually, 
 #### JUST LIKE AND SUBSCIRBE!!!  👍&❤️
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+I am still tryna learn unity as of 2026
+<br>
+I might change to GDevelop one day
+  
 
 
 
